@@ -28,5 +28,5 @@
 
 ━ ━ ━ ━ ━ ━ ━ ━ ━ ━ ━ ━ ━ ━ ━ ━ ━ ━ ━ ━ ━ ━ ━ ━ ━ ━ ━ ━ ━ ━ ━ ━ ━ ━ ━ ━ ━ ━ ━ ━ ━ <img hight="100" width="150" alt="pochacco" align="center" src="https://i.pinimg.com/originals/37/0b/a2/370ba26f3a57ef92d99867f3bfb52482.gif">
 
-### " the stars collide "
+### yayayohjo
 
